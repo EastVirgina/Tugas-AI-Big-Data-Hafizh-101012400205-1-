@@ -1,0 +1,1 @@
+# Tugas-AI-Big-Data-Hafizh-101012400205-1-
